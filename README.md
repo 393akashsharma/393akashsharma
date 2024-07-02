@@ -2,7 +2,7 @@
 
 I'm Akash sharma.
 
-Discover more about me and explore my projects on my website: [akash_sharma](https://akash_sharma).
+Discover more about me and explore my projects on my website: [akash_sharma](https://akashkumarsharma.netlify.app/).
 
 Connect with me on social media: [Instagram](https://www.instagram.com/akash.sharma.360), [LinkedIn](www.linkedin.com/in/akash-sharma-545448213).
 
